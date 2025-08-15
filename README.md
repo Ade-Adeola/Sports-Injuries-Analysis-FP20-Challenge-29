@@ -101,6 +101,6 @@ This analysis was conducted as part of FP20 Challenge 29 to explore sports injur
 
 Contact: [adeolaaderibigbe10@gmail.com]
 LinkedIn: [(https://www.linkedin.com/in/aderibigbe-adeola)]
-Twitter: [(https://x.com/its_just_ade?s=21&t=0PA0qLhrJF9k4v2VqKgg1g)]
+Twitter: [(https://x.com/its_just_ade)]
 Medium: [(https://medium.com/@adeolaaderibigbe10)]
 
